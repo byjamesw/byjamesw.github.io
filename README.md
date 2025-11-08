@@ -2,7 +2,7 @@
 
 # About André-Jacques Garnerin + Skydiving
 
-                                                                                  Skydiving and André-Jacques Garnerin
+                                                            Skydiving and André-Jacques Garnerin
 One of the most interesting and exciting sports is skydiving. Many people skydive every day for fun or for competitions. Although skydiving sounds extremely dangerous, it actually isn’t as dangerous as many think, in fact it is super fun. This sport requires a lot of patience, persistence and bravery to do, because most people have the fear of jumping down from high elevations (this is called acrophobia). Some skydivers skydive for competitions, doing different movements while in the air while others do it for recreation. Skydiving is a cool sport but there are 4 important steps to learn before skydiving. 
 Skydiving sounds like a cool sport, but what is it really? Skydiving is really “diving in the sky”. According to Longislandskydiving.com, “skydiving is the sport of jumping from an aircraft and sometimes performing acrobatic movements in the air during freefall before landing by parachute”(Long Island Skydiving Center). The whole part of skydiving is to make one feel like they are “doing the impossible”. Skydiving can sound dangerous, but it really isn’t. All someone needs to survive is a parachute and a communication device just in case one gets lost. This sport can cost around 200$ and 300$. It usually depends on the altitude someone is going to. The hardest part of skydiving is when you're about to jump, because it will make your brain feel dizzy.
 
